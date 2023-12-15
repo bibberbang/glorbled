@@ -13,4 +13,5 @@
 ![image](https://github.com/glorbled/glorbled/assets/149897608/b38f2c99-12e7-4cba-9e99-12d52ff51dff)
 ![image](https://github.com/glorbled/glorbled/assets/149897608/d8711855-35ef-4289-ad0e-50df2845bb90)
 ![image](https://github.com/glorbled/glorbled/assets/149897608/070dd006-6535-411c-a7ab-a033d2c41149)
+![image](https://github.com/glorbled/glorbled/assets/149897608/dcf32cf1-2eb2-4002-b526-abf997c84c50)
 
